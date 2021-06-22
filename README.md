@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AbdulasaurusRex
-- 👀 I’m interested in Sports, Gaming (especially minecraft) and music
+- 👀 I’m interested in Sports, Gaming (especially minecraft), anime and music
 - 🌱 I’m currently in a german Hightschool
 - 💞️ I’m looking to collaborate on Programming and larning how to programm minecraft plugins
 - 📫 How to reach me: instagram: axdxul / Email: Bay.abdulghafour@gmail.com
